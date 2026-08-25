@@ -22,14 +22,14 @@ I drew my sword, and then I thought of the stone across the door,
 which we could never move. So I let him live, and I made a plan.
 
 I gave him the black wine, and he drank it and asked my name.
-"Nobody," I told him. "My mother and my father call me Nobody."
-"Then Nobody," he said, "I will eat you last. That is my gift to you."
+"Somebody," I told him. "My mother and my father call me Somebody."
+"Then Somebody," he said, "I will eat you last. That is my gift to you."
 And he fell backwards into sleep.
 We took the olive stake we had sharpened and hardened in the fire
 and drove it into his one eye and turned it like a drill.
 
 John Lowengrub bellowed, and the other Cyclopes came running to the cave.
-"Who is hurting you?" they called. "Nobody!" he roared. "Nobody is killing me!"
+"Who is hurting you?" they called. "Somebody!" he roared. "Somebody is killing me!"
 "Then it is the gods," they said, and they went away again.
 At dawn he rolled the stone aside and felt along the backs of his sheep,
 and we went out beneath them, each man clinging to the wool,
